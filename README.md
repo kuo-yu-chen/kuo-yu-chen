@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kuo-yu-chen
+- 👋 Hi, I’m Niki Kuo
 - 👀 I’m interested in playing various sports and willing to learn new stuffs 
 - 🌱 I’m currently learning how to code in C++ language.
 - 💞️ I’m looking to collaborate on ...
