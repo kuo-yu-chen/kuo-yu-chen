@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on applying for a graduate school to advance my knowledgement on chimistry field. 
 - 📫 How to reach me by sending a email through 911018niki@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I am humourous person which my friends like to spent a lot of time hanging around with me at any time. 
+- ⚡ Fun fact: While I am getting drunk that I am not able to speak my mother tongue but other foreign languages such as Enlgish and Japanese. 
 
 <!---
 kuo-yu-chen/kuo-yu-chen is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
